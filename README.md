@@ -1,4 +1,4 @@
-Hi 👋 My name is Nonpawit Pothinl
+Hi 👋 My name is Nonpawit Pothinil
 =================================
 
 Study at Faculty of Infomatics Technology, College of Comscience, MSU
